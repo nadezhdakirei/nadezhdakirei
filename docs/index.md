@@ -1,5 +1,7 @@
 [иср 1.1.docx](https://github.com/nadezhdakirei/nadezhdakirei/files/8069330/1.1.docx)
+
 [иср 1.2.pdf](https://github.com/nadezhdakirei/nadezhdakirei/files/8069331/1.2.pdf)
+
 [иср 1.3.pdf](https://github.com/nadezhdakirei/nadezhdakirei/files/8069313/1.3.pdf)
 [иср 1.4.pdf](https://github.com/nadezhdakirei/nadezhdakirei/files/8069315/1.4.pdf)
 [иср 1.5.pdf](https://github.com/nadezhdakirei/nadezhdakirei/files/8069316/1.5.pdf)
