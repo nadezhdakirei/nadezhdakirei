@@ -1,4 +1,4 @@
-[иср 1.1.docx](https://github.com/nadezhdakirei/nadezhdakirei/files/8069330/1.1.docx/blob/master/LICENSE)
+[иср 1.1.docx](https://docs.google.com/document/d/1Tv2sRBwSdT10ouau2vrO9ex2mByxxndV/edit)
 
 [иср 1.2.pdf](https://github.com/nadezhdakirei/nadezhdakirei/files/8069331/1.2.pdf)
 
