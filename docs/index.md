@@ -4,7 +4,6 @@
 
 [иср 1.3.pdf](https://github.com/nadezhdakirei/nadezhdakirei/files/8069313/1.3.pdf)
 
-
 [иср 1.4.pdf](https://github.com/nadezhdakirei/nadezhdakirei/files/8069315/1.4.pdf)
 
 [иср 1.5.pdf](https://github.com/nadezhdakirei/nadezhdakirei/files/8069316/1.5.pdf)
